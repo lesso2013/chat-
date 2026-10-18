@@ -1,0 +1,1 @@
+HAEGEN public marketing photos. Only sanitized images, no client data.
